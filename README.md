@@ -1,3 +1,3 @@
 # doped_arrays
 
-test
+To access preprint, please click test.pdf above.
